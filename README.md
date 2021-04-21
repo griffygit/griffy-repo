@@ -1,7 +1,7 @@
 ★ Hello ★
 
-Im @Caleo010! A NY-based computer science major.
+Im Caleb Herrera, A NY-based computer science major.
 
-Twitter, IG: @thecalebherrera
+Socials ~ @thecalebherrera
 
-Discord: Gryphen 🌠#1782
+Discord ~ Gryphen 🌠#1782
