@@ -2,6 +2,6 @@
 
 Im Caleb Herrera, A NY-based computer science major.
 
-Socials ~ @thecalebherrera
+Socials - @thecalebherrera
 
-Discord ~ Griff🦋☁#9627
+Discord - Griff🦋☁#9627
